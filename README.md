@@ -1,1 +1,1 @@
-![fall](paint.jpg)
+![fall](takezo.jpg)
